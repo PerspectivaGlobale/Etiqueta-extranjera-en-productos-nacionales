@@ -1,1 +1,2 @@
 # Etiqueta-extranjera-en-productos-nacionales
+En todas partes donde se ha querido evitar el abuso de la colocación de marbetes extranjeros en los productos de fabricación nacional, se ha tratado de dictar leyes limitativas y controladoras al respecto, como se ha hecho en Inglaterra y en Alemania, por ejemplo. Sin ir más lejos, en la Argentina fue presentado a la Cámara de Representantes, hace algún tiempo, por el diputado señor Rodolfo Moreno (hijo), un proyecto sobre destilación de mercaderías nacionales, el cual no sabemos si ha llegado a ser convertido en ley.
